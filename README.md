@@ -1,0 +1,1 @@
+# latihanAmna.1
